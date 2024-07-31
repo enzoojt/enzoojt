@@ -9,4 +9,4 @@ Você pode entrar em contato comigo 📫
 
 00001118983427sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/jaIDxXGJ90l.gif)
+![](https://media1.tenor.com/m/aO7avj0hVZ8AAAAC/xinyu-triples.gif)
