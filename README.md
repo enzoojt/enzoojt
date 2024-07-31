@@ -9,4 +9,4 @@ Você pode entrar em contato comigo 📫
 
 00001118983427sp@al.educacao.sp.gov.br
 
-![https://tenor.com/jaIDxXGJ90l.gif](link)
+![](https://tenor.com/jaIDxXGJ90l.gif)
