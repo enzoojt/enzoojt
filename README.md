@@ -2,7 +2,7 @@
 
 Meu nome é Enzo Assunção
 
-Estou estudando na [Alura](https://www.alura.com.br/)
+Estou estudando no [Alura](https://www.alura.com.br/)
 
 Estou me desenvolvendo na linguagem JavaScript
 
